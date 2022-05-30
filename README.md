@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Subhrajeeta1990
 - 👀 I’m interested in Business Analysis, supply chain management, and Business Intelligence .
-- 🌱 I’m currently persuing MBA in business analytics.
+- 🌱 I have completed MBA in business analytics and finance.
 - 💞️ I’m looking for good oppertunities.
 - 📫 How to reach me - subhrajeeta1990@gmail.com
 
